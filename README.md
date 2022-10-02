@@ -1,1 +1,1 @@
-# TechnicalWritingPortfolio. --> Coming soon!
+# TechnicalWritingPortfolio --> Coming soon!
